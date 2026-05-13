@@ -1,4 +1,4 @@
-# 
+# automatic GitKraken for PC | GitKraken for Windows Snippet | collaboration-tools + repository-management is the best GitKraken for PC | GitKraken for Windows snippet, featuring
 
 
 
